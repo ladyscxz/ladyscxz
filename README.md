@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a 4th-year UM student and i luv catz
+I am a 4th-year UM student. i luv catz and supraaaa tututututututu
 
 
 ## 🌐 Socials:
